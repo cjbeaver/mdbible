@@ -1,6 +1,6 @@
 # Chapter 35
 
-1. Great Is the Lord Of David. Contend, O Lord, with those who contend with me; fight against those who fight against me!
+1. Contend, O Lord, with those who contend with me; fight against those who fight against me!
 2. Take hold of shield and buckler and rise for my help!
 3. Draw the spear and javelin against my pursuers! Say to my soul, I am your salvation!
 4. Let them be put to shame and dishonor who seek after my life! Let them be turned back and disappointed who devise evil against me!

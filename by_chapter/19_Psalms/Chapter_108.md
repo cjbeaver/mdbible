@@ -1,7 +1,6 @@
 # Chapter 108
 
-1. With God We Shall Do Valiantly A Song. A Psalm of David. My heart is steadfast, O God! I will sing and make melody with all my being!
-2. Awake, O harp and lyre! I will awake the dawn!
+1. With God We Shall Do Valiantly My heart is steadfast, O God! I will sing and make melody with all my being! 2. Awake, O harp and lyre! I will awake the dawn!
 3. I will give thanks to you, O Lord, among the peoples; I will sing praises to you among the nations.
 4. For your steadfast love is great above the heavens; your faithfulness reaches to the clouds.
 5. Be exalted, O God, above the heavens! Let your glory be over all the earth!

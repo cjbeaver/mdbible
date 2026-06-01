@@ -1,6 +1,6 @@
 # Chapter 55
 
-1. Cast Your Burden on the Lord To the choirmaster : with stringed instruments. A Maskil of David. Give ear to my prayer, O God, and hide not yourself from my plea for mercy!
+1. Give ear to my prayer, O God, and hide not yourself from my plea for mercy!
 2. Attend to me, and answer me; I am restless in my complaint and I moan,
 3. because of the noise of the enemy, because of the oppression of the wicked. For they drop trouble upon me, and in anger they bear a grudge against me.
 4. My heart is in anguish within me; the terrors of death have fallen upon me.

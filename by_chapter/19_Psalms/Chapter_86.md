@@ -1,6 +1,6 @@
 # Chapter 86
 
-1. Great Is Your Steadfast Love A Prayer of David. Incline your ear, O Lord, and answer me, for I am poor and needy.
+1. Incline your ear, O Lord, and answer me, for I am poor and needy.
 2. Preserve my life, for I am godly; save your servant, who trusts in you—you are my God.
 3. Be gracious to me, O Lord, for to you do I cry all the day.
 4. Gladden the soul of your servant, for to you, O Lord, do I lift up my soul.

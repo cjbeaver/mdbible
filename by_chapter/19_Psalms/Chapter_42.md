@@ -1,6 +1,6 @@
 # Chapter 42
 
-1. Why Are You Cast Down, O My Soul? To the choirmaster. A Maskil of the Sons of Korah. As a deer pants for flowing streams, so pants my soul for you, O God.
+1. As a deer pants for flowing streams, so pants my soul for you, O God.
 2. My soul thirsts for God, for the living God. When shall I come and appear before God?
 3. My tears have been my food day and night, while they say to me all the day long, Where is your God?
 4. These things I remember, as I pour out my soul : how I would go with the throng and lead them in procession to the house of God with glad shouts and songs of praise, a multitude keeping festival.

@@ -1,6 +1,6 @@
 # Chapter 145
 
-1. Great Is the Lord A Song of Praise. Of David. I will extol you, my God and King, and bless your name forever and ever.
+1. I will extol you, my God and King, and bless your name forever and ever.
 2. Every day I will bless you and praise your name forever and ever.
 3. Great is the Lord, and greatly to be praised, and his greatness is unsearchable.
 4. One generation shall commend your works to another, and shall declare your mighty acts.

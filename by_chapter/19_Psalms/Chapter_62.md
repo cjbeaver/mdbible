@@ -1,7 +1,6 @@
 # Chapter 62
 
-1. My Soul Waits for God Alone To the choirmaster : according to Jeduthun. A Psalm of David. For God alone my soul waits in silence; from him comes my salvation.
-2. He alone is my rock and my salvation, my fortress; I shall not be greatly shaken.
+1. My Soul Waits for God Alone For God alone my soul waits in silence; from him comes my salvation. 2. He alone is my rock and my salvation, my fortress; I shall not be greatly shaken.
 3. How long will all of you attack a man to batter him, like a leaning wall, a tottering fence?
 4. They only plan to thrust him down from his high position. They take pleasure in falsehood. They bless with their mouths, but inwardly they curse.
 5. For God alone, O my soul, wait in silence, for my hope is from him.

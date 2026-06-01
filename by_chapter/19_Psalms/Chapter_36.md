@@ -1,6 +1,6 @@
 # Chapter 36
 
-1. How Precious Is Your Steadfast Love To the choirmaster. Of David, the servant of the Lord. Transgression speaks to the wicked deep in his heart; there is no fear of God before his eyes.
+1. Transgression speaks to the wicked deep in his heart; there is no fear of God before his eyes.
 2. For he flatters himself in his own eyes that his iniquity cannot be found out and hated.
 3. The words of his mouth are trouble and deceit; he has ceased to act wisely and do good.
 4. He plots trouble while on his bed; he sets himself in a way that is not good; he does not reject evil.

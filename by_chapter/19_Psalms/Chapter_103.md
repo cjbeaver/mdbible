@@ -1,6 +1,6 @@
 # Chapter 103
 
-1. Bless the Lord, O My Soul Of David. Bless the Lord, O my soul, and all that is within me, bless his holy name!
+1. , and all that is within me, bless his holy name!
 2. Bless the Lord, O my soul, and forget not all his benefits,
 3. who forgives all your iniquity, who heals all your diseases,
 4. who redeems your life from the pit, who crowns you with steadfast love and mercy,

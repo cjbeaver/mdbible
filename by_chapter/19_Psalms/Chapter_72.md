@@ -1,6 +1,6 @@
 # Chapter 72
 
-1. Give the King Your Justice Of Solomon. Give the king your justice, O God, and your righteousness to the royal son!
+1. Give the king your justice, O God, and your righteousness to the royal son!
 2. May he judge your people with righteousness, and your poor with justice!
 3. Let the mountains bear prosperity for the people, and the hills, in righteousness!
 4. May he defend the cause of the poor of the people, give deliverance to the children of the needy, and crush the oppressor!

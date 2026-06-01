@@ -1,7 +1,6 @@
 # Chapter 51
 
-1. Create in Me a Clean Heart, O God To the choirmaster. A Psalm of David, when Nathan the prophet went to him, after he had gone in to Bathsheba. Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot out my transgressions.
-2. Wash me thoroughly from my iniquity, and cleanse me from my sin!
+1. Create in Me a Clean Heart, O God , when Nathan the prophet went to him, after he had gone in to Bathsheba. Have mercy on me, O God, according to your steadfast love; according to your abundant mercy blot out my transgressions. 2. Wash me thoroughly from my iniquity, and cleanse me from my sin!
 3. For I know my transgressions, and my sin is ever before me.
 4. Against you, you only, have I sinned and done what is evil in your sight, so that you may be justified in your words and blameless in your judgment.
 5. Behold, I was brought forth in iniquity, and in sin did my mother conceive me.

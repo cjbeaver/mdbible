@@ -1,7 +1,6 @@
 # Chapter 92
 
-1. How Great Are Your Works A Psalm. A Song for the Sabbath. It is good to give thanks to the Lord, to sing praises to your name, O Most High;
-2. to declare your steadfast love in the morning, and your faithfulness by night,
+1. How Great Are Your Works It is good to give thanks to the Lord, to sing praises to your name, O Most High; 2. to declare your steadfast love in the morning, and your faithfulness by night,
 3. to the music of the lute and the harp, to the melody of the lyre.
 4. For you, O Lord, have made me glad by your work; at the works of your hands I sing for joy.
 5. How great are your works, O Lord! Your thoughts are very deep!

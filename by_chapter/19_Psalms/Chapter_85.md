@@ -1,7 +1,6 @@
 # Chapter 85
 
-1. Revive Us Again To the choirmaster. A Psalm of the Sons of Korah. Lord, you were favorable to your land; you restored the fortunes of Jacob.
-2. You forgave the iniquity of your people; you covered all their sin.
+1. Revive Us Again Lord, you were favorable to your land; you restored the fortunes of Jacob. 2. You forgave the iniquity of your people; you covered all their sin.
 3. You withdrew all your wrath; you turned from your hot anger.
 4. Restore us again, O God of our salvation, and put away your indignation toward us!
 5. Will you be angry with us forever? Will you prolong your anger to all generations?

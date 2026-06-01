@@ -1,6 +1,6 @@
 # Chapter 69
 
-1. Save Me, O God To the choirmaster : according to Lilies. Of David. Save me, O God! For the waters have come up to my neck.
+1. Save me, O God! For the waters have come up to my neck.
 2. I sink in deep mire, where there is no foothold; I have come into deep waters, and the flood sweeps over me.
 3. I am weary with my crying out; my throat is parched. My eyes grow dim with waiting for my God.
 4. More in number than the hairs of my head are those who hate me without cause; mighty are those who would destroy me, those who attack me with lies. What I did not steal must I now restore?

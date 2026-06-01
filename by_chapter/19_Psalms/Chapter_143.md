@@ -1,7 +1,6 @@
 # Chapter 143
 
-1. My Soul Thirsts for You A Psalm of David. Hear my prayer, O Lord; give ear to my pleas for mercy! In your faithfulness answer me, in your righteousness!
-2. Enter not into judgment with your servant, for no one living is righteous before you.
+1. My Soul Thirsts for You Hear my prayer, O Lord; give ear to my pleas for mercy! In your faithfulness answer me, in your righteousness! 2. Enter not into judgment with your servant, for no one living is righteous before you.
 3. For the enemy has pursued my soul; he has crushed my life to the ground; he has made me sit in darkness like those long dead.
 4. Therefore my spirit faints within me; my heart within me is appalled.
 5. I remember the days of old; I meditate on all that you have done; I ponder the work of your hands.

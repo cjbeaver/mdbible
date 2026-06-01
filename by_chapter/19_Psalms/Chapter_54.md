@@ -1,6 +1,6 @@
 # Chapter 54
 
-1. The Lord Upholds My Life To the choirmaster : with stringed instruments. A Maskil of David, when the Ziphites went and told Saul, Is not David hiding among us? O God, save me by your name, and vindicate me by your might.
+1. The Lord Upholds My Life
 2. O God, hear my prayer; give ear to the words of my mouth.
 3. For strangers have risen against me; ruthless men seek my life; they do not set God before themselves.
 4. Behold, God is my helper; the Lord is the upholder of my life.

@@ -1,6 +1,6 @@
 # Chapter 59
 
-1. Deliver Me from My Enemies To the choirmaster : according to Do Not Destroy. A Miktam of David, when Saul sent men to watch his house in order to kill him. Deliver me from my enemies, O my God; protect me from those who rise up against me;
+1. Deliver me from my enemies, O my God; protect me from those who rise up against me;
 2. deliver me from those who work evil, and save me from bloodthirsty men.
 3. For behold, they lie in wait for my life; fierce men stir up strife against me. For no transgression or sin of mine, O Lord,
 4. for no fault of mine, they run and make ready. Awake, come to meet me, and see!

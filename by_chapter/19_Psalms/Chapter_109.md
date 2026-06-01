@@ -1,7 +1,6 @@
 # Chapter 109
 
-1. Help Me, O Lord My God To the choirmaster. A Psalm of David. Be not silent, O God of my praise!
-2. For wicked and deceitful mouths are opened against me, speaking against me with lying tongues.
+1. Help Me, O Lord My God Be not silent, O God of my praise! 2. For wicked and deceitful mouths are opened against me, speaking against me with lying tongues.
 3. They encircle me with words of hate, and attack me without cause.
 4. In return for my love they accuse me, but I give myself to prayer.
 5. So they reward me evil for good, and hatred for my love.

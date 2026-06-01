@@ -1,7 +1,6 @@
 # Chapter 50
 
-1. God Himself Is Judge A Psalm of Asaph. The Mighty One, God the Lord, speaks and summons the earth from the rising of the sun to its setting.
-2. Out of Zion, the perfection of beauty, God shines forth.
+1. God Himself Is Judge The Mighty One, God the Lord, speaks and summons the earth from the rising of the sun to its setting. 2. Out of Zion, the perfection of beauty, God shines forth.
 3. Our God comes; he does not keep silence; before him is a devouring fire, around him a mighty tempest.
 4. He calls to the heavens above and to the earth, that he may judge his people :
 5. Gather to me my faithful ones, who made a covenant with me by sacrifice!

@@ -1,6 +1,6 @@
 # Chapter 60
 
-1. He Will Tread Down Our Foes To the choirmaster : according to Shushan Eduth. A Miktam of David; for instruction; when he strove with Aram-naharaim and with Aram-zobah, and when Joab on his return struck down twelve thousand of Edom in the Valley of Salt. O God, you have rejected us, broken our defenses; you have been angry; oh, restore us.
+1. O God, you have rejected us, broken our defenses; you have been angry; oh, restore us.
 2. You have made the land to quake; you have torn it open; repair its breaches, for it totters.
 3. You have made your people see hard things; you have given us wine to drink that made us stagger.
 4. You have set up a banner for those who fear you, that they may flee to it from the bow.

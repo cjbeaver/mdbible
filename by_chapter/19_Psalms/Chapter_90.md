@@ -1,6 +1,6 @@
 # Chapter 90
 
-1. From Everlasting to Everlasting A Prayer of Moses, the man of God. Lord, you have been our dwelling place in all generations.
+1. Lord, you have been our dwelling place in all generations.
 2. Before the mountains were brought forth, or ever you had formed the earth and the world, from everlasting to everlasting you are God.
 3. You return man to dust and say, Return, O children of man!
 4. For a thousand years in your sight are but as yesterday when it is past, or as a watch in the night.

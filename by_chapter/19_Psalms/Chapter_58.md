@@ -1,6 +1,6 @@
 # Chapter 58
 
-1. God Who Judges the Earth To the choirmaster : according to Do Not Destroy. A Miktam of David. Do you indeed decree what is right, you gods? Do you judge the children of man uprightly?
+1. Do you indeed decree what is right, you gods? Do you judge the children of man uprightly?
 2. No, in your hearts you devise wrongs; your hands deal out violence on earth.
 3. The wicked are estranged from the womb; they go astray from birth, speaking lies.
 4. They have venom like the venom of a serpent, like the deaf adder that stops its ear,

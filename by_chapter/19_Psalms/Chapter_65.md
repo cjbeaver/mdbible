@@ -1,7 +1,6 @@
 # Chapter 65
 
-1. O God of Our Salvation To the choirmaster. A Psalm of David. A Song. Praise is due to you, O God, in Zion, and to you shall vows be performed.
-2. O you who hear prayer, to you shall all flesh come.
+1. O God of Our Salvation Praise is due to you, O God, in Zion, and to you shall vows be performed. 2. O you who hear prayer, to you shall all flesh come.
 3. When iniquities prevail against me, you atone for our transgressions.
 4. Blessed is the one you choose and bring near, to dwell in your courts! We shall be satisfied with the goodness of your house, the holiness of your temple!
 5. By awesome deeds you answer us with righteousness, O God of our salvation, the hope of all the ends of the earth and of the farthest seas;

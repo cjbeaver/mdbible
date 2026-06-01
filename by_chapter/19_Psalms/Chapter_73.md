@@ -1,6 +1,6 @@
 # Chapter 73
 
-1. God Is My Strength and Portion Forever A Psalm of Asaph. Truly God is good to Israel, to those who are pure in heart.
+1. Truly God is good to Israel, to those who are pure in heart.
 2. But as for me, my feet had almost stumbled, my steps had nearly slipped.
 3. For I was envious of the arrogant when I saw the prosperity of the wicked.
 4. For they have no pangs until death; their bodies are fat and sleek.

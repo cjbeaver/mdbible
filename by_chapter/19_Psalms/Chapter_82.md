@@ -1,6 +1,6 @@
 # Chapter 82
 
-1. Rescue the Weak and Needy A Psalm of Asaph. God has taken his place in the divine council; in the midst of the gods he holds judgment :
+1. God has taken his place in the divine council; in the midst of the gods he holds judgment :
 2. How long will you judge unjustly and show partiality to the wicked?
 3. Give justice to the weak and the fatherless; maintain the right of the afflicted and the destitute.
 4. Rescue the weak and the needy; deliver them from the hand of the wicked.

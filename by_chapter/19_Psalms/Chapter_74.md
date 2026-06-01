@@ -1,6 +1,6 @@
 # Chapter 74
 
-1. Arise, O God, Defend Your Cause A Maskil of Asaph. O God, why do you cast us off forever? Why does your anger smoke against the sheep of your pasture?
+1. O God, why do you cast us off forever? Why does your anger smoke against the sheep of your pasture?
 2. Remember your congregation, which you have purchased of old, which you have redeemed to be the tribe of your heritage! Remember Mount Zion, where you have dwelt.
 3. Direct your steps to the perpetual ruins; the enemy has destroyed everything in the sanctuary!
 4. Your foes have roared in the midst of your meeting place; they set up their own signs for signs.

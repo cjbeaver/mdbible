@@ -1,7 +1,6 @@
 # Chapter 4
 
-1. Answer me when I call, O God of my righteousness! You have given me relief when I was in distress. Be gracious to me and hear my prayer!
-2. O men, how long shall my honor be turned into shame? How long will you love vain words and seek after lies?
+1. Answer me when I call, O God of my righteousness! You have given me relief when I was in distress2. O men, how long shall my honor be turned into shame? How long will you love vain words and seek after lies?
 3. But know that the Lord has set apart the godly for himself; the Lord hears when I call to him.
 4. Be angry, and do not sin; ponder in your own hearts on your beds, and be silent.
 5. Offer right sacrifices, and put your trust in the Lord.

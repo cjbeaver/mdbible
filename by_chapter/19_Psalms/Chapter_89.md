@@ -1,6 +1,6 @@
 # Chapter 89
 
-1. I Will Sing of the Steadfast Love of the Lord A Maskil of Ethan the Ezrahite. I will sing of the steadfast love of the Lord, forever; with my mouth I will make known your faithfulness to all generations.
+1. I will sing of the steadfast love of the Lord, forever; with my mouth I will make known your faithfulness to all generations.
 2. For I said, Steadfast love will be built up forever; in the heavens you will establish your faithfulness.
 3. You have said, I have made a covenant with my chosen one; I have sworn to David my servant :
 4. I will establish your offspring forever, and build your throne for all generations.

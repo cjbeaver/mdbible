@@ -1,6 +1,6 @@
 # Chapter 122
 
-1. Let Us Go to the House of the Lord A Song of Ascents. Of David. I was glad when they said to me, Let us go to the house of the Lord!
+1. I was glad when they said to me, !
 2. Our feet have been standing within your gates, O Jerusalem!
 3. Jerusalem — built as a city that is bound firmly together,
 4. to which the tribes go up, the tribes of the Lord, as was decreed for Israel, to give thanks to the name of the Lord.

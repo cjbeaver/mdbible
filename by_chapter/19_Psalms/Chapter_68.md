@@ -1,6 +1,6 @@
 # Chapter 68
 
-1. God Shall Scatter His Enemies To the choirmaster. A Psalm of David. A Song. God shall arise, his enemies shall be scattered; and those who hate him shall flee before him!
+1. God shall arise, his enemies shall be scattered; and those who hate him shall flee before him!
 2. As smoke is driven away, so you shall drive them away; as wax melts before fire, so the wicked shall perish before God!
 3. But the righteous shall be glad; they shall exult before God; they shall be jubilant with joy!
 4. Sing to God, sing praises to his name; lift up a song to him who rides through the deserts; his name is the Lord; exult before him!

@@ -1,7 +1,6 @@
 # Chapter 76
 
-1. Who Can Stand Before You? To the choirmaster : with stringed instruments. A Psalm of Asaph. A Song. In Judah God is known; his name is great in Israel.
-2. His abode has been established in Salem, his dwelling place in Zion.
+1. Who Can Stand Before You? In Judah God is known; his name is great in Israel. 2. His abode has been established in Salem, his dwelling place in Zion.
 3. There he broke the flashing arrows, the shield, the sword, and the weapons of war.
 4. Glorious are you, more majestic than the mountains full of prey.
 5. The stouthearted were stripped of their spoil; they sank into sleep; all the men of war were unable to use their hands.

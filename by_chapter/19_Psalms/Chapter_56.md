@@ -1,6 +1,6 @@
 # Chapter 56
 
-1. In God I Trust To the choirmaster : according to The Dove on Far-off Terebinths. A Miktam of David, when the Philistines seized him in Gath. Be gracious to me, O God, for man tramples on me; all day long an attacker oppresses me;
+1. Be gracious to me, O God, for man tramples on me; all day long an attacker oppresses me;
 2. my enemies trample on me all day long, for many attack me proudly.
 3. When I am afraid, I put my trust in you.
 4. In God, whose word I praise, in God I trust; I shall not be afraid. What can flesh do to me?

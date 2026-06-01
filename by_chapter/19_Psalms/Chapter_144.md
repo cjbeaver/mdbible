@@ -1,6 +1,6 @@
 # Chapter 144
 
-1. My Rock and My Fortress Of David. Blessed be the Lord, my rock, who trains my hands for war, and my fingers for battle;
+1. Blessed be the Lord, my rock, who trains my hands for war, and my fingers for battle;
 2. he is my steadfast love and my fortress, my stronghold and my deliverer, my shield and he in whom I take refuge, who subdues peoples under me.
 3. O Lord, what is man that you regard him, or the son of man that you think of him?
 4. Man is like a breath; his days are like a passing shadow.

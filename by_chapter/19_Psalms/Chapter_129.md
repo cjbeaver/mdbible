@@ -1,6 +1,6 @@
 # Chapter 129
 
-1. They Have Afflicted Me from My Youth A Song of Ascents. Greatly have they afflicted me from my youth — let Israel now say —
+1. Greatly have they afflicted me from my youth — let Israel now say —
 2. Greatly have they afflicted me from my youth, yet they have not prevailed against me.
 3. The plowers plowed upon my back; they made long their furrows.
 4. The Lord is righteous; he has cut the cords of the wicked.
